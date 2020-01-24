@@ -1,4 +1,3 @@
 # anurag
 proofs
-presidency<ht
-
+presidency<htfjdfcdfkbvkjdfkask;[;qwaLdx
