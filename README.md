@@ -1,3 +1,4 @@
 # anurag
 proofs
-presidency<html>
+presidency<ht
+
